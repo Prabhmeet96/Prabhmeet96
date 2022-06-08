@@ -1,4 +1,4 @@
-Hey, my name is Prabhmeet and I’m an incoming 1st year Mathematics & Computer Science student @uWaterloo
+Hi, my name is Prabhmeet and I’m an incoming 1st year Mathematics & Computer Science student @uWaterloo
 
 
 
